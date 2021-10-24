@@ -1,7 +1,7 @@
 <p align="center">
  <samp>
   <br>
-   ~ ヽ(・∀・)ﾉ | („• ᴗ •„) ~
+   ~ ♣♣♣♣♣♣♣♣♣♣~
   <br>
   <br>
 hal terbodoh dalam hidup saya adalah mencintaimu.
