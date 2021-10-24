@@ -1,13 +1,13 @@
 <p align="center">
  <samp>
   <br>
-   ~ ♣♣♣♣♣♣♣♣♣♣~
+   ~ 💕💕💕💕💕💕 ~
   <br>
   <br>
 hal terbodoh dalam hidup saya adalah mencintaimu.
   <br>
   <br>
-   ~~~~~~~ („• ֊ •„) ~~~~~~~
+   ~~~~~~~ (😭😭😭) ~~~~~~~
 </samp>
   <br>
   <br>
