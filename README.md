@@ -12,5 +12,5 @@ AKU MENCINTAI SALAH SATU FRIENDS LIST KU.
   <br>
   <br>
   <br>
-<img src="https://github.com/DixiExe/DixiExe/blob/main/picture.png"/></a><img width="80px" src="xxxxxxx
+<img Width="80px" src="https://github.com/DixiExe/DixiExe/blob/main/picture.png"/></a>
 </p>
