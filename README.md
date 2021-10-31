@@ -4,10 +4,10 @@
    ~ 💕💕💕💕💕💕 ~
   <br>
   <br>
-hal terbodoh dalam hidup saya adalah mencintaimu.
+AKU MENCINTAI SALAH SATU FRIENDS LIST KU.
   <br>
   <br>
-   ~~~~~~~ (😭😭😭) ~~~~~~~
+   ~~~~~~~ (🤗🤗🤗) ~~~~~~~
 </samp>
   <br>
   <br>
