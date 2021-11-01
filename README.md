@@ -1,10 +1,12 @@
 <p align="center">
  <samp>
   <br>
-   ~ 💕💕💕💕💕💕 ~
+   ~ 💫💫💫 ~
   <br>
   <br>
-AKU MENCINTAI SALAH SATU FRIENDS LIST KU.
+" Tidak Perlu Menjelaskan Tentang Dirimu Kepada Siapapun ,Karena Yang Menyukaimu Tidak Butuh Itu ,Dan Yang Membencimu Tidak Percaya Itu "
+
+~ Ali Bin Abi Tholib ~.
   <br>
   <br>
    ~~~~~~~ (🤗🤗🤗) ~~~~~~~
