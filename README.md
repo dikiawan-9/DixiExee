@@ -1,7 +1,7 @@
 <p align="center">
  <samp>
   <br>
-   ~ 💫💫💫 ~
+   ~°°° 💫💫💫 °°°~
   <br>
   <br>
 " Tidak Perlu Menjelaskan Tentang Dirimu Kepada Siapapun ,Karena Yang Menyukaimu Tidak Butuh Itu ,Dan Yang Membencimu Tidak Percaya Itu "
